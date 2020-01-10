@@ -1,4 +1,0 @@
-# Neon-Lands
-## FOR PC
-## DOWNLOAD AND PLAY NOW!!!
-WASD, SPACE and MOUSE
